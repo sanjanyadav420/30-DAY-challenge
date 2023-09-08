@@ -1,1 +1,1 @@
-# 30-DAY-challenge
+# 30-DAY-CHALLENGES
